@@ -15,6 +15,6 @@ eu sou o aluno thiago
 
 
 
-  !()(https://media.tenor.com/1240Fm0tpuAAAAAM/bandeira-do-s%C3%A3o-paulo-s%C3%A3o-paulo-fc.gif)
+  !(https://media.tenor.com/1240Fm0tpuAAAAAM/bandeira-do-s%C3%A3o-paulo-s%C3%A3o-paulo-fc.gif)
 
 
