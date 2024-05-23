@@ -6,7 +6,7 @@ eu sou o aluno thiago
   
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos!!!
 
-  -  ## você pode entrar em contanto comido 📫
+  -  ## você pode entrar em contanto comigo 📫
 
    0000107482698xsp@al.educacao.sp.gov.br
 
